@@ -1,0 +1,1 @@
+# Syntecxhub_Student_management_system
